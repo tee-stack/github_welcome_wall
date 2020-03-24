@@ -141,3 +141,5 @@ The cost of inaction is more expensive than making a mistake. - ohhye
 <br>— Rodolfo Costa 
 {: .text-center}
 <br>
+<br>
+A New Day is only hours Away. Don't Give Up.
